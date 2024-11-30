@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning ...all about coding from baby basics
 - 💞️ I’m looking to collaborate on ...https://github.com/dchio83
 - 📫 How to reach me ... david.w.chio@gmail.com, xanaxus.xyz@outlook.com, thisdreadedfather@hotmail.com, 1-567-322-4951
+- [url=https://valid.x86.fr/b22ch8][img]https://valid.x86.fr/cache/banner/b22ch8-4.png[/img][/url]
 
 <!---
 dchio83/dchio83 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
